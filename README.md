@@ -1,4 +1,4 @@
-I suck at introductions. Shoot me an email if you're interested :):
+👋🏻I suck at introductions. Shoot me an email if you're interested :): gsinay@uc.cl
 
 
 <!---
